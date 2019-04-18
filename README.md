@@ -5,5 +5,5 @@ This is to illustrate [this issue](https://github.com/styleguidist/react-stylegu
 
 ```
 npm i      # install
-npm start  # start styloeguidist
+npm start  # start styleguidist
 ```
