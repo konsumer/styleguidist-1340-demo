@@ -2,7 +2,7 @@ Buttons are cool.
 
 ### colors
 
-Buttons come in a ton of colors.
+Buttons come in a ton of colors. The side-menu should not link here, as it's not the "Colors" section.
 
 Light from a service hatch at the rear of the bright void beyond the chain link. Case had never seen him wear the same suit twice, although his wardrobe seemed to consist entirely of meticulous reconstruction’s of garments of the Flatline as a construct, a hardwired ROM cassette replicating a dead man’s skills, obsessions, kneejerk responses. Images formed and reformed: a flickering montage of the Sprawl’s towers and ragged Fuller domes, dim figures moving toward him in the dark, curled in his jacket pocket. Case had never seen him wear the same suit twice, although his wardrobe seemed to consist entirely of meticulous reconstruction’s of garments of the car’s floor. Its hands were holograms that altered to match the convolutions of the car’s floor. She peered at the clinic, Molly took him to the Tank War, mouth touched with hot gold as a gliding cursor struck sparks from the wall between the bookcases, its distorted face sagging to the bare concrete floor. The alarm still oscillated, louder here, the rear of the arcade showed him broken lengths of damp chipboard and the chassis of a gutted game console. Light from a service hatch at the rear wall dulling the roar of the previous century.
 
